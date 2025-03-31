@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on complex projects - ground_up - either being Development or Mainatanence.
 - 📫 How to reach me, E-mail: tlhogomolekemaleka@gmail.com, Mobile: (+27) 72 147 9556, LinkedIn: www.linkedin.com/in/tlhogo-maleka-b1bb95213 
 - 😄 Pronouns: ... Mo Ga Le, Ma Le Ka
-- ⚡ Fun fact: ... Easy to get along with people, Fun to be around and a built_in Sense of humour.
+- ⚡ Fun fact: ... Easy to get along with people, Fun to be around, with a built_in Sense of humour.
 
 <!---
 RPGDEV07/RPGDEV07 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
